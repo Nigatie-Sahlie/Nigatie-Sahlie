@@ -5,4 +5,4 @@
 * 🌱 Currently learning Machine Learning and exploring AI technologies
 * 💡 Passionate about continuous self-development and teamwork through hands-on projects
 * 🤝 Open to collaboration on web development, AI, and engineering-related projects
-* 📫 Reach me at: **[nigatiesahlie20@gmail.com](mailto:nigatiesahlie20@gmail.com)** | [GitHub Profile](https://github.com/Nigatie-Sahlie)
+* 📫 Reach me at: **[nigatiesahlie20@gmail.com](mailto:nigatiesahlie20@gmail.com)** | [GitHub Profile](https://github.com/Nigatie-Sahlie)|[Linkdin](www.linkedin.com/in/sanige)
